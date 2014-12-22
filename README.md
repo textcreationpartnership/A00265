@@ -35,8 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles to be inquired of, by the churchwardens and sworne men within the Archdea[c]onrie of Worces
+
 #####Body#####
+
+1. ❧Mattters enquirable, concerning
+the Clergie,
+
+    _ • Matters enquirable concerning the laytie.
 
 **Types of content**
 
